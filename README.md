@@ -4,10 +4,8 @@
    <p align=left> ㅤ
          <p align=center> ㅤ( ˶´ ᵕ `˶ )ㅤ♡
    <p align=left> ㅤ
-<p align=left> ㅤ
-<p align=center> <img align="center" witdh="250" height="220" src="https://file.garden/asIXvjMlGHO-DdCH/IMG_4648.png"/>
-   <p align=left> ㅤ
-         <p align=center> ㅤWORST PHOTOBOMBER EVER I HATE YUO <a href="https://github.com/eIeventh">@eIeventh</a>
+<p align=left> ㅤㅤ
+         <p align=center> ㅤim gonna win bunny photography competition 2026 just you wait <a href="https://github.com/eIeventh">@eIeventh</a>
                <p align=left> ㅤ
                <p align=left> ㅤ
                <p align=left> ㅤ
