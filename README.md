@@ -1,3 +1,5 @@
+   <p align=left> ㅤ
+         <p align=left> ㅤ
 <p align=center> <img align="center" witdh="250" height="200" src="https://file.garden/asIXvjMlGHO-DdCH/ajwdkad.png"/>
    <p align=left> ㅤ
          <p align=center> ㅤ( ˶´ ᵕ `˶ )ㅤ♡
