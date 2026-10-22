@@ -7,3 +7,5 @@
                <p align=left> ㅤ
                <p align=left> ㅤ
                <p align=center> <img align="center" witdh="250" height="450" src="https://file.garden/asIXvjMlGHO-DdCH/bunyns.png"/>
+                              <p align=left> ㅤ
+               <p align=left> ㅤ
